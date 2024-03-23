@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Arinzeigwe, ebonyi state, Nigeria.
+- 👋 Hi, I’m @Arinzeigwe from ezza south local government ebonyi state, Nigeria.
 - 👀 I’m interested in . Bitcoin trading....
 - 🌱 I’m currently learning furniture and upholstery designer.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Bitcoin trading.....
 - 📫 How to reach me ..my watsup number is 07043603396
 - 😄 Pronouns: ...iam single 
 - ⚡ Fun fact: ...iam a  good person, that when I mingle with you, you will love a friend.
